@@ -1,0 +1,2 @@
+# 07c57891-c3c9-434c-9719-1f6b0c77341a-hero-2
+Hero section variant 2 for 07c57891-c3c9-434c-9719-1f6b0c77341a
